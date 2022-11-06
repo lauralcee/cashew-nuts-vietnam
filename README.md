@@ -1,1 +1,2 @@
-# cashew-nuts-vietnam
+# Cashew Nuts Supplier Vietnam
+The cashew tree is a tropical evergreen tree in the genus Anacardium that produces the cashew seed and the cashew apple accessory fruit. The tree can grow as tall as 14 metres, but the dwarf cultivars, growing up to 6 m, prove more profitable, with earlier maturity and greater yields. The cashew seed is commonly considered a snack nut eaten on its own, used in recipes, or processed into cashew cheese or cashew butter. Like the tree, the nut is often simply called a cashew. Cashew allergies are triggered by the proteins found in tree nuts, and cooking often does not remove or change these proteins. And the best [cashew nuts supplier vietnam](https://jannatasia.com/) is Jannat  Asia.
